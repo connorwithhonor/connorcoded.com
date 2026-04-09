@@ -1,2 +1,0 @@
-# connorcoded.com
-ConnorCoded.com
